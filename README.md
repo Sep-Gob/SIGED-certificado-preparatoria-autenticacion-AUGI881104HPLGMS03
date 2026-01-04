@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AUGI881104HPLGMS03
+AUGI881104HPLGMS03
